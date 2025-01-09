@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Popthebot
+- 👀 I’m interested in Video game design and modding
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on (Nothing rn)
+- 📫 How to reach me Discord PopthebotYT
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I got a youtube channel
